@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Dipak2053
-- 👀 I’m interested in software developer 
-- 🌱 I’m currently learning all the skills need to software developer 
+- 👀 I’m interested in software Engineer 
+- 🌱 I’m currently learning all the skills need to software Engineer 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me (EMAIL ID: dipakgangadiya1204@gmail.com)
 - 😄 Pronouns: 
